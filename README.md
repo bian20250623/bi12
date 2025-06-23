@@ -41,7 +41,7 @@
 
 点击访问：<a href="https://pi25.pages.dev/">17吃瓜</a>
 
-点击访问：<a href="https://pi1-1.pages.dev/">百度百科</a>
+点击访问：<a href="https://pi1-1.pages.dev/">吃瓜百度百科</a>
 
 点击访问：<a href="https://cg5-2.pages.dev/">今日吃瓜不打烊</a>
 
